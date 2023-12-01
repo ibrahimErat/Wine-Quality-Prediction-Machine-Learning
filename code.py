@@ -1,2 +1,0 @@
-code
-ıf wwwww
